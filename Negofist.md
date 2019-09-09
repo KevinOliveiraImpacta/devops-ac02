@@ -1,0 +1,2 @@
+Eu gostaria de seguir a area de desenvolvimento de programas pelo fato de gostar de sempre criar coisas e tals .
+E uma empresa que gostaria de trabalhar , uma microsoft da vida mais como eu gosto muito de cultura japonesa a sony seria legal
